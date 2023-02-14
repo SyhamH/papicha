@@ -15,7 +15,7 @@ Au sein d'un groupe de jeunes femmes, étudiantes à Alger, durant la décennie 
 
 [Mounia MEDDOUR](images/MOUNIA_MEDDOUR_CESAR_2020.jpg)
 
-Elle est née en 19782. Son père est le réalisateur algérien Azzedine Meddour et sa mère est d'origine russe. Elle effectue des études supérieures en école de journalisme, puis se forme au cinéma et à l'audiovisuel en France où elle obtient un diplôme au Centre européen de formation à la production de films (CEFPF), en réalisation de fiction en 2002 puis en réalisation documentaire en 2004, et à l’université d’été de la Fémis en 2004.
+Elle est née en 1978. Son père est le réalisateur algérien Azzedine Meddour et sa mère est d'origine russe. Elle effectue des études supérieures en école de journalisme, puis se forme au cinéma et à l'audiovisuel en France où elle obtient un diplôme au Centre européen de formation à la production de films (CEFPF), en réalisation de fiction en 2002 puis en réalisation documentaire en 2004, et à l’université d’été de la Fémis en 2004.
 
 Après ces formations, elle réalise plusieurs documentaires, tels que Particules élémentaires en 20074, ou encore La Cuisine en héritage en 20094,6, puis en 2011 Cinéma algérien, un nouveau souffle, un documentaire sur la nouvelle génération de réalisateurs algériens qui émerge, malgré l’absence de financement. Cette même année 2011, elle réalise son premier court-métrage de fiction, Edwige7. Ce court-métrage reçoit une mention spéciale aux Journées cinématographiques d’Alger.
 
