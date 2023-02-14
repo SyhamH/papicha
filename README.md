@@ -13,7 +13,7 @@ Au sein d'un groupe de jeunes femmes, étudiantes à Alger, durant la décennie 
 
 ## *Realisatrice*
 
-[MouniaMEDDOU](images/MOUNIA_MEDDOUR_CESAR_2020.jpg)
+[Mounia MEDDOUR](images/MOUNIA_MEDDOUR_CESAR_2020.jpg)
 
 Elle est née en 19782. Son père est le réalisateur algérien Azzedine Meddour et sa mère est d'origine russe. Elle effectue des études supérieures en école de journalisme, puis se forme au cinéma et à l'audiovisuel en France où elle obtient un diplôme au Centre européen de formation à la production de films (CEFPF), en réalisation de fiction en 2002 puis en réalisation documentaire en 2004, et à l’université d’été de la Fémis en 2004.
 
